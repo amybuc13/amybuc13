@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning code and creating websites
 - 🌱 I’m currently learning HTML, CSS and Javascript
 - 💞️ I’m looking to collaborate on anything!
-- 📫 How to reach me discord: bcrningpile
+- 📫 How to reach me: Discord - Username: bcrningpile
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am addicted to my PC and gaming
 
